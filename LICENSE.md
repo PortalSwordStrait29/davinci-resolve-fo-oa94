@@ -1,4 +1,4 @@
-# 
+# Enhance DaVinci Resolve for PC | DaVinci Resolve for Windows with updated DaVinci Resolve for PC | DaVinci Resolve for Windows Plugin | collaboration-tools + 4K-export, the #1
 
 
 
